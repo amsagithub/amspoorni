@@ -1,2 +1,2 @@
 # amspoorni
-poorni paithiyum
+poorni kutty
